@@ -1,1 +1,2 @@
 # Ciclos-ganaderos.-Crisis-ganaderas
+La ganadería vacuna de la Argentina registra, tradicionalmente, pronunciadas fluctuaciones en sus existencias que revelan una marcada sensibilidad a diversos factores. Son los llamados ciclos ganaderos, los cuales, no obstante haber disminuido la influencia de este sector en la vida económica del país, siguen repercutiendo notablemente en la economía popular por la fuerte participación de la carne en el costo de vida de la población. 
